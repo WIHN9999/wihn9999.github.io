@@ -3,7 +3,7 @@
 
 我叫西瓜酸梅湯，我主要是做賽車類遊戲解說，
 
-以及賽車的性能數據分析和駕駛技巧的教學。
+以及賽車的性能數據分析和駕駛技巧的教學。![image](https://github.com/WIHN9999/wihn9999.github.io/assets/174402449/a1c857c4-5055-4183-99ee-06776877d136)
 
 這是我的youtube歡迎參觀 : https://www.youtube.com/@wihn9999/videos
 ![wihn](https://github.com/WIHN9999/WIHN9999.github.io/assets/174402449/cfabccdf-bf86-4e9a-822e-ea4a5d60f69a)
